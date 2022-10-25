@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Thiago Dev 😁
+## Bem-vindo(a) ao perfil do Thiago Claro 😁
 
  <div>
    <a href="https://github.com/ThiagoDevRoot">
